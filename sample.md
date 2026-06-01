@@ -1,0 +1,1 @@
+karjito tekst
